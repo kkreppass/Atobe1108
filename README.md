@@ -1,1 +1,1 @@
-<img src = "https://playentry.org/uploads/kx/f9/kxf9m1ktl2bbuipd3h3od2a9537rxkjv.png" width=100% height=auto;>
+<img src = "https://playentry.org/uploads/w0/14/w014g682l2bbxrav0ug3d2a9535qmzxi.svg" width=100% height=auto;>
